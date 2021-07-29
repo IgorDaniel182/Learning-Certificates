@@ -1,2 +1,2 @@
 # Learning-Certificates
-certificates of what I learned during my pursuit of knowledge outside of high school
+Certificates Of What I Learned During My Pursuit Of Knowledge Outside Of High School
